@@ -17,7 +17,7 @@ Normal people don't drink that way. They can have half a drink and forget about 
 the next drink, and the next one after that, and so on. Once I have that first drink, I'm powerless. I *have* to finish that drink and have the next one. When it comes 
 to alcohol, *I AM powerless*.
 
-## \*B That our lives had become unmanageable\*
+## \*B.  That our lives had become unmanageable\*
 
 When I was really new in the program, I asked one of the old timers how to tell if my life was unmanageable, because, in truth, I thought I managed quite well. I had a roof
 over my head, I had a job, I never worked hung-over, like some of the old-timers talked about, nor was I ever homeless, nor was I ever committed to a nuthouse.  The old timer
